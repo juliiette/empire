@@ -1,2 +1,2 @@
-# Empire Methods curse
+# Empire Methods cоurse
 
